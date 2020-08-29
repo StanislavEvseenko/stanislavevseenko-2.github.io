@@ -1,1 +1,0 @@
-# stanislavevseenko.github.io
